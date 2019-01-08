@@ -1,4 +1,7 @@
 #	Roasted Garlic Cauliflower
+
+![](https://tastefulventure.com/wp-content/uploads/2016/12/Roasted-Garlic-Cauliflower-2.jpg)
+
 Prep - 15 m
 
 Cook - 25 m
